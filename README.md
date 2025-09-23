@@ -16,7 +16,6 @@ Exploring kink and BDSM as a couple requires trustworthy educational resources t
 -   **Obedience App** ([www.obedienceapp.com](http://www.obedienceapp.com)) - Sophisticated habit tracker for established Dom/sub couples, featuring task creation, rewards, points system, and journaling through companion "Embrace" app.
 -   **FetLife** ([www.fetlife.com](http://www.fetlife.com)) - The "Facebook for kink" with 450,000+ members, offering educational groups, event listings, and discussion forums with strong privacy controls.
 -   **Yes/No/Maybe Lists** (various platforms) - Digital negotiation tools ranging from Google Sheets templates to specialized encrypted apps for exploring boundaries systematically.
--   **NoGrey** ([www.nogrey.app](http://www.nogrey.app)) - Developing platform promising end-to-end encryption for scene negotiations and consent documentation.
 
 ## Books & Written Resources
 
